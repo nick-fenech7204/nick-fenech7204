@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nick-fenech7204
+👋 Hi, I’m @nick-fenech7204
 
 I'm Nick, a young professional with a deep passion for data! 
 In my early career, I had the incredible opportunity to closely collaborate with our Executive Director, who demonstrated the power of data-driven decision-making in creating value where others might have overlooked it. 
